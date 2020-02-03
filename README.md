@@ -2,7 +2,8 @@
 Luck Test Like a Play Bazaar, Satta Matka, Satta Bazaar, Sattaking, Satta Result , Satta King,
 They call baseball America's preferred diversion, however why would that be? In the event that you are asking why baseball has been such an extraordinary American game, at that point you will need to peruse the accompanying article. There is such a long way to go regarding the game, and the article underneath has numerous extraordinary tips from the professionals. 
 
-Move the heaviness of your body to your back foot to expand the force behind your batting position. This will give you the most conceivable force. At the point when you swing, additional force will originate from your back foot. 
+Move the heaviness of your body to your back foot to expand the force behind your batting position. This will give you the most conceivable force. At the point when you swing, additional force will originate from your back foot. <a href="https://www.lucktest.in/ResultChart.php">play bazaar</a>
+
 
 Sliding is a significant ability that numerous baseball players don't have the foggiest idea how to do. You can't fear the soil. An ideal slide includes timing. You need your foot to hit the base as fast as could be allowed. Work on sliding day by day until you can precisely judge when to start your slide for most extreme separation. 
 
