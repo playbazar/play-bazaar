@@ -6,6 +6,7 @@ Move the heaviness of your body to your back foot to expand the force behind you
 
 
 Sliding is a significant ability that numerous baseball players don't have the foggiest idea how to do. You can't fear the soil. An ideal slide includes timing. You need your foot to hit the base as fast as could be allowed. Work on sliding day by day until you can precisely judge when to start your slide for most extreme separation. 
+<a href="https://www.lucktest.in/ResultChart.php">satta matka</a>
 
 Converse with others about your objectives. At the point when you converse with individuals about your baseball objectives, you are bound to meet them. A good thought is to join a gathering for baseball players and find a workable pace who are as enthusiastic about baseball as you seem to be. That way, you can share encounters and proposals about how to show signs of improvement. 
 
